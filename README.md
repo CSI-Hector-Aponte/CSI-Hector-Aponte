@@ -10,5 +10,5 @@
 - 🔭 My zodiac sign is Sagittarius
 - 💬 Ask me about any moral\excistencial issue, I love to argue about that.
 - 🚡 Pronouns: Caterpillar TX50 Rotery lift
--🤔Things that keep me up at night: How small can a bowl be before it's a cup, If I need expirience to get a job how do you get expirience, Jesus was born in march or July etc...
+- 🤔Things that keep me up at night: How small can a bowl be before it's a cup, If I need expirience to get a job how do you get expirience, Jesus was born in march or July etc...
 -->
