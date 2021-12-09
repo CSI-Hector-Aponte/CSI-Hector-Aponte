@@ -32,8 +32,8 @@ En un tazón mediano, con una batidora o batidor manual, bata el queso crema y l
 
 Transfiera los recipientes al horno. Hornee hasta que el flan esté listo (se comprueba cuando al insertar un cuchillo fino en el centro, este sale limpio) de 40-45 minutos. Remueva el flan del recipiente con agua y deseche el papel aluminio. Deje reposar hasta que se enfríe. Transfiera el molde de flan al refrigerador y deje por lo menos 2 horas. Para desmoldar, pase un cuchillo alrededor de los bordes del flan. Dele la vuelta en un plato para servir. Corte en 12 porciones.
 
-##### Referencia
-https://www.goya.com/es/recipes/flan-de-queso-caramel-topped-cream-cheese-custard
-
 #### Video con otra receta
 https://www.youtube.com/watch?v=bq88cDwuD1I
+
+##### Referencia
+https://www.goya.com/es/recipes/flan-de-queso-caramel-topped-cream-cheese-custard
